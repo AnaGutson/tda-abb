@@ -1,4 +1,3 @@
-Buen día Lucas, ¿cómo estás? Se procederá a aclarar algunas cuestiones sobre el trabajo, ya que capaz podrían generar duda - y además es obligatorio hacerlo.
 
 ────────────────────────────────────────────────────────────────────Convenciones────────────────────────────────────────────────────────────────────
 
